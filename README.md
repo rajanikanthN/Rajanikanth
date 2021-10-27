@@ -1,2 +1,2 @@
-# Rajanikanth.github.io
+# Rajanikanth
 Portfolio
